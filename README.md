@@ -7,7 +7,7 @@
 <img src="https://file.garden/ahUyvxoejgfGlvXc/ezgif.com-animated-gif-maker%20(6).gif" width="70" align="up">
 
 
-   ㅤ   ㅤ  ㅤ   ㅤㅤ[rentry](https://rentry.co/transfemrage)${\textsf{\color{#86A562} ✙ }}$[pronouns.cc](https://pronouns.cc/@transfemrage) ${\textsf{\color{#433883}(,,¬﹏¬,,)}}$
+   ㅤ   ㅤ  ㅤ   ㅤㅤ[rentry](https://rentry.co/transfemrage)${\textsf{\color{#86A562} . }}$[pronouns.cc](https://pronouns.cc/@transfemrage) ${\textsf{\color{#433883}(,,¬﹏¬,,)}}$
 
 
 <br>
