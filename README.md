@@ -1,13 +1,11 @@
-<img src="https://file.garden/ahUyvxoejgfGlvXc/mii%20fighters#left" width="300" align="left">
+ <p align="center">
+ <img src="https://komarev.com/ghpvc/?username=transfemrage&color=920100&style=plastic&label=FLAMES" alt="bruh" /> 
+</p>
+<img src="https://file.garden/ahUyvxoejgfGlvXc/waxwell%20monster" width="300" align="left">
 
-   　 ㅤ ${\textsf{\color{#433883} (⌁° ‸ °⌁)}}$ ㅤ ${\textsf{\color{#bfdaeb} biggest mii fighters fan}}$ ㅤ ${\textsf{\color{#bdd8ea}!!}}$ ㅤ 
-
-
-   ㅤ [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=fxzjs7pb9eipz69946rk8ue9h&cover_image=true&theme=natemoo-re&show_offline=true&background_color=121212&interchange=false&profanity=false&hide_remaster=false&bar_color=bfdaeb&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=fxzjs7pb9eipz69946rk8ue9h&redirect=true)
-<img src="https://file.garden/ahUyvxoejgfGlvXc/mii%20fighters%20icon" width="70" align="up">
-
-
-   ㅤ   ㅤ  ㅤ   ㅤㅤ[rentry](https://rentry.co/transfemrage)${\textsf{\color{#86A562} . }}$[pronouns.cc](https://pronouns.cc/@transfemrage) ${\textsf{\color{#433883}(,,¬﹏¬,,)}}$
-
-
-<br>
+<p align="center">
+  <a href="https://spotify-github-profile.kittinanx.com/api/view?uid=fxzjs7pb9eipz69946rk8ue9h&redirect=true">
+    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=fxzjs7pb9eipz69946rk8ue9h&cover_image=true&theme=natemoo-re&show_offline=false&background_color=370d0d&interchange=false&profanity=false&hide_remaster=false&bar_color=700c0c&bar_color_cover=false">
+     <img src="https://file.garden/ahUyvxoejgfGlvXc/waxwell%20sticker" width="70" align="up">
+  </a>
+</p>
